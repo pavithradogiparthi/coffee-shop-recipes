@@ -18,7 +18,7 @@
 
 ### Step 2
 
-- Add cold 2% milk.
+- Add cold 5% milk.
 
 ### Step 3
 
