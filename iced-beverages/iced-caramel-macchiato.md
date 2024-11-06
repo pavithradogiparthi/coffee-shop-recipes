@@ -14,7 +14,7 @@
 
 ### Step 1
 
-- Place vanilla syrup in a glass.
+- Place vanilla syrup in a cup.
 
 ### Step 2
 
