@@ -22,7 +22,7 @@
 
 ### Step 3
 
-- Fill glass with ice to ½ inch below rim.
+- Fill glass with ice to ½ inch above rim.
 
 ### Step 4
 
