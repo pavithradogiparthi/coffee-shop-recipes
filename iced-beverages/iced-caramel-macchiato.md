@@ -26,7 +26,7 @@
 
 ### Step 4
 
-- Pour in espresso shots.
+- Pour in espresso coffeee.
 
 ### Step 5
 
